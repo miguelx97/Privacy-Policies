@@ -1,4 +1,4 @@
-# Privacy Policy
+# Stormii Privacy Policy
 
 Miguel Martín built the Stormii app as a Free app. This SERVICE is provided by Miguel Martín at no cost and is intended for use as is.
 
